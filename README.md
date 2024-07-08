@@ -1,5 +1,5 @@
 <h1 tabindex="-1" dir="auto" style="text-align:center">
-   🥇mnl777 loginregister & referral code
+   🥇mnl777 login register & referral code
 </h1>
 <p align=center>
    <a href="https://github.jililuck.com">
