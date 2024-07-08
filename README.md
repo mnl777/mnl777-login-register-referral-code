@@ -17,8 +17,8 @@ To get started, simply visit the <a href="https://github.jililuck.com">MNL777 we
    <p>
       <table align=center>
          <tbody>
-           <tr class="Box-sc-g0xbh4-0 dApGZs"><td><b>👍mnl777 login register：</b></td><td><a href="https://telegram.me/fanyazhifu" title="mnl777 login register">mnl777 login register</a><p>Telegram搜索 @fanyazhifu</p></td></tr>
-          <tr class="Box-sc-g0xbh4-0 dApGZs"><td><b>👍mnl777 referral-code：</b></td><td><a href="https://telegram.me/aviapays" title="mnl777 referral-code">mnl777 referral-code</a><p>Telegram搜索 @aviapays</p></td></tr>
+           <tr class="Box-sc-g0xbh4-0 dApGZs"><td><b>👍mnl777 login register：</b></td><td><a href="https://github.jililuck.com" title="mnl777 login register">mnl777 login register</a></td></tr>
+          <tr class="Box-sc-g0xbh4-0 dApGZs"><td><b>👍mnl777 referral-code：</b></td><td><a href="https://github.jililuck.com" title="mnl777 referral-code">mnl777 referral-code</a></td></tr>
          </tbody>
       </table1>
    <p>
