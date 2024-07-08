@@ -3,6 +3,12 @@
 </h1>
 <p align=center>
    <a href="https://github.jililuck.com">
+     <img src="https://github.com/mnl777/mnl777-login-register-referral-code/blob/main/promotion_friend_new.png">
+   </a>
+</p>
+
+<p align=center>
+   <a href="https://github.jililuck.com">
      <img src="https://github.com/mnl777/mnl777-login-register-referral-code/blob/main/2024-07-08_161134.jpg">
    </a>
 </p>
